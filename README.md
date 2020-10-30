@@ -6,3 +6,4 @@
 - Maddie Lemmond - madisonlemmond
 - Mona Cook - monacook
 - Jay Velazco Avendano - @jayvel37
+- Syeda Jaffery - syedajaffery23
